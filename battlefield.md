@@ -1,6 +1,3 @@
 battle starts now!
 
-HERE AGAIN~~~AGAIN!121212 I'm gonna change here
-
-123AND HERE456789000000000]
-HERHEKLRHEKL
+asdadasd
